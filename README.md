@@ -1,2 +1,3 @@
 # Juz-Cuz-I-Can-
 Changing the negative connections to words describing Women who are strong.
+How many times has societies structure of demigraphics influenced social, personal, or work relationships? When is the time to step-up and step out? I was raised the Ol' Skol way, by grandparnets who where the prodicual of Slave owners in the South. Self-respect and the respect of others was a must. I was raised to believe I am a commodity, not an employee. As a woman, a woman of color, a daughter, mother, and a child of the Most High, I was taught my worth. So the name JUZ CUZ I CAN!, allows me to showcase I have no boundries, or limitations, society cant hold me back or down. What I allow in my life or dont, is one of the two choices I have been blessed with. 
